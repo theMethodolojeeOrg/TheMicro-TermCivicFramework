@@ -168,11 +168,6 @@ the system will tend to:
 	•	surface genuinely novel solutions,
 	•	and make the “real culture” of the group visible—so people can respond to that, not to an idealized rulebook fantasy.
 
-Oh, this is a great next layer—this is basically:
-
-“Okay, you built an evolutionary machine.
-Now how do you learn to listen to what it’s telling you, instead of forcing it to match your map?”
-
 
 ⸻
 
@@ -692,9 +687,9 @@ Jerry opened the envelope and pulled out a laminated notecard just like the one 
 “Ah ah ah!” Terry interrupted. “I don’t care to know the details and, if you actually read it to the end, you’d know it’s an efficiency thing they’re trying out; And I’m all about efficiency…”
 Jerry’s eyes darted to the bottom of the card, “Oh yeah....  it says so right there. Huh…” puzzled Jerry as his eyes quickly scanned the rest of the card again, his bewilderment fading into a smirk..
 “So what’ll it be?” Terry might as well have been speaking to a deaf five year old: “CAAAN…. YOUUUU… FOLLLLLOOOWWWW… THOSEEEE….. INSTRUUUUUUUUUCTIONNNNNNNSSSS?” Terry jabbed. Tap..tap.tap.tap went Terry’s work boots with impatience as they wrapped against the sidewalk.
-“Uhhhh…. Yeah!” Said Jerry, his smirk now betraying a sly, knowing confidence, “Just bring the palate to the door. I’ll handle the rest!” This was an enthusasm Jerry hadn’t felt in,,, quite a while… Terry whipped out a yellow school pencil from his pocket and ticked a single mark on his notecard in received yet banal bureaucratically. 
-“Just in time... “ Terry sighed deeply in relief and began to turn away in stride.,, As Terry’s foot landed on the concrete. He paused for a moment, performed a small face-palm and rotated himself back to Jeffy
- “Oh yeah!” his hand stretched outward, “here’s your first pencil!" He said; his mocking tone now just barely perceptable. His sarcasm, however, felt telegraphed : “it’s got an eraser for a reason!” Terry turned back the way he came toward a red semi truck parked just a few spots down. As Terry walked away to unload the promised palate of oranges, Jerry stood up and walked down the alley to the dark door. Deet… Doot.. Daat.Dat. an electrical security lock responded to the 4-digit pin Jerry had already memorized... A green light… a released latch… Jerry pushed the door open: a stark white room. A centered counter island and… the industrial juicer.
+"Uhhhh…. Yeah!" Said Jerry, his smirk now betraying a sly, knowing confidence, "Just bring the palate to the door. I'll handle the rest!" This was an enthusiasm Jerry hadn't felt in... quite a while… Terry whipped out a yellow school pencil from his pocket and ticked a single mark on his notecard in received yet banal bureaucratically. 
+"Just in time..." Terry sighed deeply in relief and began to turn away in stride... As Terry's foot landed on the concrete, he paused for a moment, performed a small face-palm and rotated himself back to Jerry.
+ “Oh yeah!” his hand stretched outward, “here’s your first pencil!" He said; his mocking tone now just barely perceptible. His sarcasm, however, felt telegraphed: "it's got an eraser for a reason!" Terry turned back the way he came toward a red semi truck parked just a few spots down. As Terry walked away to unload the promised palate of oranges, Jerry stood up and walked down the alley to the dark door. Deet… Doot.. Daat.Dat. an electrical security lock responded to the 4-digit pin Jerry had already memorized... A green light… a released latch… Jerry pushed the door open: a stark white room. A centered counter island and… the industrial juicer.
 Jerry giggled to himself in confidence, “And to think…” Jerry said under his breath, “some idiot is going to pay me $1000 every Monday to just…” He looked around the room once more and then to his laminated card to make sure he hadn’t missed something… Nope: “to just juice a palate of oranges…” 
 
 
